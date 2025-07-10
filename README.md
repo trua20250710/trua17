@@ -10,4 +10,4 @@
 
 这些平台汇集了丰富的日本特黄一级大片资源，内容多样，更新及时，分类详细，方便用户快速查找。每个视频页面均包含影片时长、主演及清晰度等详细信息，支持高清视频播放，并根据网络环境自动优化画质，确保流畅观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/trua20250710/trua17 ）</span>
